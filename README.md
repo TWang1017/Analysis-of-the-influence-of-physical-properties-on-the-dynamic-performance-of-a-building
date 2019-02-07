@@ -1,0 +1,1 @@
+# Analysis-of-the-influence-of-physical-properties-on-the-dynamic-performance-of-a-building
